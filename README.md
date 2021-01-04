@@ -1,2 +1,0 @@
-# lzpikachu.github.io
-YaBi
